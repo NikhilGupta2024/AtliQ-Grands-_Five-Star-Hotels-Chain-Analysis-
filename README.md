@@ -13,3 +13,6 @@
 
 ![image](https://github.com/NikhilGupta2024/AtliQ-Grands-_Five-Star-Hotels-Chain-Analysis-/assets/158210072/ec52cb20-7ace-493d-b5f9-bfe1813d189b)
 ![image](https://github.com/NikhilGupta2024/AtliQ-Grands-_Five-Star-Hotels-Chain-Analysis-/assets/158210072/31a75962-5c28-4fca-9da3-1ab64e149bf7)
+
+![image](https://github.com/NikhilGupta2024/AtliQ-Grands-_Five-Star-Hotels-Chain-Analysis-/assets/158210072/7c79d2a7-5deb-47af-a41a-08a1e479ccfc)
+![image](https://github.com/NikhilGupta2024/AtliQ-Grands-_Five-Star-Hotels-Chain-Analysis-/assets/158210072/31a75962-5c28-4fca-9da3-1ab64e149bf7)

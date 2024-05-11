@@ -5,11 +5,11 @@
 ![image](https://github.com/NikhilGupta2024/AtliQ-Grands-_Five-Star-Hotels-Chain-Analysis-/assets/158210072/c80398a3-97bd-41bd-a2e0-d33ad81bbea3)
 ![image](https://github.com/NikhilGupta2024/AtliQ-Grands-_Five-Star-Hotels-Chain-Analysis-/assets/158210072/31a75962-5c28-4fca-9da3-1ab64e149bf7)
 
-![image](https://github.com/NikhilGupta2024/AtliQ-Grands-_Five-Star-Hotels-Chain-Analysis-/assets/158210072/0bf1a14a-4b17-4b49-98ce-7fc93366c542)
+![image](https://github.com/NikhilGupta2024/AtliQ-Grands-_Five-Star-Hotels-Chain-Analysis-/assets/158210072/4481f671-62be-44c1-a8f2-6558adc2276c)
 ![image](https://github.com/NikhilGupta2024/AtliQ-Grands-_Five-Star-Hotels-Chain-Analysis-/assets/158210072/31a75962-5c28-4fca-9da3-1ab64e149bf7)
 
-![image](https://github.com/NikhilGupta2024/AtliQ-Grands-_Five-Star-Hotels-Chain-Analysis-/assets/158210072/550dd4b5-d4ee-4786-abc8-1a8c3bf09e21)
+![image](https://github.com/NikhilGupta2024/AtliQ-Grands-_Five-Star-Hotels-Chain-Analysis-/assets/158210072/c429c279-cff2-4131-9a99-c601238c7950)
 ![image](https://github.com/NikhilGupta2024/AtliQ-Grands-_Five-Star-Hotels-Chain-Analysis-/assets/158210072/31a75962-5c28-4fca-9da3-1ab64e149bf7)
 
-![image](https://github.com/NikhilGupta2024/AtliQ-Grands-_Five-Star-Hotels-Chain-Analysis-/assets/158210072/1f2c6314-fc1c-4d56-b9b1-f5326550be89)
+![image](https://github.com/NikhilGupta2024/AtliQ-Grands-_Five-Star-Hotels-Chain-Analysis-/assets/158210072/ec52cb20-7ace-493d-b5f9-bfe1813d189b)
 ![image](https://github.com/NikhilGupta2024/AtliQ-Grands-_Five-Star-Hotels-Chain-Analysis-/assets/158210072/31a75962-5c28-4fca-9da3-1ab64e149bf7)
